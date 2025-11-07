@@ -4,7 +4,7 @@ MCT+ Exit Scam
 The MCT+ (My Crypto Trade) cryptocurrency trading platform exit scammed on 02 July 2019.
 
 Here is the result of a year-long investigation called "The complete story of the MCT+ Exit Scam":
-https://issuu.com/mctplus/docs/mct_2b_exit_scam
+https://heyzine.com/flip-book/3e49647e28.html
 
 From the investigation you can find out:
 - the real identities of the MCT+ founders,
